@@ -1,0 +1,4 @@
+The most important part of making Jalebi at home is to have the right consistency of your Jalebi batter. It should not be too thin or thick.
+Traditionally, the Jalebi batter is fermented for 10-12 hours in warmth. But, if you live in a cold place, you must ferment it for 24 hours.
+While frying the Jalebis, make sure the flame is on low. High heat will leave it uncooked from the inside. This will also give you ample time to give your Jalebis the best shape.
+For Instant Jalebis, mix together all-purpose flour, corn flour, and a little turmeric. Then, add curd and water to it and whisk well in one direction to make a smooth batter.
